@@ -91,18 +91,20 @@ Introduce of algrofia
 
 Introducation to  algorithmes 
 
+remove   a                 e is right  
+
 algorithmes   algprothmes algorithmes algorithmes 
 algorithmes algorithmes algorithmes algorithmes algorithmes algorithmes 
 
 Introducation to algorithmes  
 
-write from memory  默写！
+write from memory  
 
 
-**restaurant 餐馆**
-  **lawyer's office 律师事务所**
-  **a good salary 一份不错的薪酬**
-  **immediately 立即**
+**restaurant **
+  **lawyer's office **
+  **a good salary **
+  **immediately **
   and never pays it back .
   saw me and came and sat at the same table
   He has never borrows money from me .
