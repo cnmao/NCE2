@@ -87,6 +87,16 @@ I was having dinner at a resturants when Toney came in .
      i 'have never borrowed any money from you , Toney said , So you can pay for my dinner '
 
 
+Introduce of algrofia  
+
+Introducation to  algorithmes 
+
+algorithmes   algprothmes algorithmes algorithmes 
+algorithmes algorithmes algorithmes algorithmes algorithmes algorithmes 
+
+Introducation to algorithmes  
+
+write from memory  默写！
 
 
 **restaurant 餐馆**
