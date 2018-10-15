@@ -98,6 +98,7 @@ I was having dinner at a resturants when Toney came in .
   He has never borrows money from me .
   While he was eating ,I asked him to lend me twenty pounds.
   
+  
 
 I was having dinner at a resturant when Toney came in . Toney has worked in a layer's office and now he has worked at bank . Toney has a good salary but he always borrows money from his friends and never pays it back . Tone saw me and sat down in the same table . he has never borrowed any money from me . While he was eating i asked him could you lend me twenty pounds . To my surprise , he gave me the money immidatelly .  i have never borrows any money from you , Toney said ,so you can pay for my dinner! 
 
