@@ -22,3 +22,10 @@ he set out at eight  o'clock. so we have plenty of time  . We'll see his boat an
  He will take part in an important race across the a
  
  
+ 一分为二 大化小 
+ 关键动词记忆
+ 
+ 学习心得： 
+    不能急， 一句话一个单词的进行！
+ 
+ 
